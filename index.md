@@ -1,4 +1,4 @@
 # 目次
 
-- [in](index.md)
+- [in](private.md)
 - out
