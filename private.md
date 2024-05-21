@@ -15,9 +15,13 @@
 - [missav.com](https://missav.com/ja){:target="_blank"}
 - [kisscos.net](https://kisscos.net/){:target="_blank"}
 - [乳皇帝](https://chichikoutei.com/){:target="_blank"}
-- [AV女優の名前が知りたい！](https://av-wiki.net/){:target="_blank"}
 - [njav.tv](https://njav.tv/ja){:target="_blank"}
 - [おっぱい動画 - 巨乳・美乳まとめ](https://oppai-doga.info/){:target="_blank"}
+- [乳首ふぇち](https://chikubi.jp/){:target="_blank"}
+
+## ACTRESS
+- [女優検索db](https://db.msin.jp/?jp){:target="_blank"}
+- [AV女優の名前が知りたい！](https://av-wiki.net/){:target="_blank"}
 
 ## まとめリンク
 - [view](https://raindrop.io/miminame-11235813){:target="_blank"}
