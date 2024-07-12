@@ -18,6 +18,7 @@
 - [njav.tv](https://njav.tv/ja){:target="_blank"}
 - [おっぱい動画 - 巨乳・美乳まとめ](https://oppai-doga.info/){:target="_blank"}
 - [乳首ふぇち](https://chikubi.jp/){:target="_blank"}
+- [アダルトリーフ](https://adult-leaf.blogterest.net/){:target="_blank"}
 
 ## ACTRESS
 - [女優検索db](https://db.msin.jp/?jp){:target="_blank"}
