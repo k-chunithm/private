@@ -23,6 +23,7 @@
 ## ACTRESS
 - [女優検索db](https://db.msin.jp/?jp){:target="_blank"}
 - [AV女優の名前が知りたい！](https://av-wiki.net/){:target="_blank"}
+- [女優検索 erodougazo.com](https://erodougazo.com/){:target="_blank"}
 
 ## まとめリンク
 - [view](https://raindrop.io/miminame-11235813){:target="_blank"}
