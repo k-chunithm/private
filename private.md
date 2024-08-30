@@ -21,7 +21,7 @@
 - [アダルトリーフ](https://adult-leaf.blogterest.net/){:target="_blank"}
 
 ## ACTRESS
-- [女優検索db](https://db.msin.jp/?jp){:target="_blank"}
+- [みんなのAV.com](https://www.minnano-av.com/){:target="_blank"}
 - [AV女優の名前が知りたい！](https://av-wiki.net/){:target="_blank"}
 - [女優検索 erodougazo.com](https://erodougazo.com/){:target="_blank"}
 
