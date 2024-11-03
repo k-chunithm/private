@@ -10,6 +10,7 @@
 - [momon-ga](https://momon-ga.com/){:target="_blank"}
 - [ひめぼん](https://himebon.blog/){:target="_blank"}
 - [n.hentai](https://nhentai.net/language/japanese/){:target="_blank"}
+- [kemono.su](kemono.su){:target="_blank"}
 
 ## MOVIE
 - [missav.com](https://missav.com/ja){:target="_blank"}
