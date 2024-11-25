@@ -11,6 +11,7 @@
 - [ひめぼん](https://himebon.blog/){:target="_blank"}
 - [n.hentai](https://nhentai.net/language/japanese/){:target="_blank"}
 - [kemono.su](https://kemono.su/){:target="_blank"}
+- [akuma.moe](https://akuma.moe/)
 - [hentaipaw.com](https://hentaipaw.com/){:target="_blank"}
 
 ## MOVIE
