@@ -11,7 +11,7 @@
 - [ひめぼん](https://himebon.blog/){:target="_blank"}
 - [n.hentai](https://nhentai.net/language/japanese/){:target="_blank"}
 - [kemono.su](https://kemono.su/){:target="_blank"}
-- [akuma.moe](https://akuma.moe/)
+- [akuma.moe](https://akuma.moe/){:target="_blank"}
 - [hentaipaw.com](https://hentaipaw.com/){:target="_blank"}
 
 ## MOVIE
@@ -22,6 +22,8 @@
 - [おっぱい動画 - 巨乳・美乳まとめ](https://oppai-doga.info/){:target="_blank"}
 - [乳首ふぇち](https://chikubi.jp/){:target="_blank"}
 - [アダルトリーフ](https://adult-leaf.blogterest.net/){:target="_blank"}
+- [myfans](https://myfans.jp/){:target="_blank"}
+- [TOKYOMOTION](https://www.tokyomotion.net/){:target="_blank"}
 
 ## ACTRESS
 - [みんなのAV.com](https://www.minnano-av.com/){:target="_blank"}
