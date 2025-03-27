@@ -22,7 +22,7 @@
 - [アダルトリーフ](https://adult-leaf.blogterest.net/){:target="_blank"}
 - [myfans](https://myfans.jp/){:target="_blank"}
 - [TOKYOMOTION](https://www.tokyomotion.net/){:target="_blank"}
-- [エロ画像で探すAV『がぞさが』](https://gazosaga.com/)
+- [エロ画像で探すAV『がぞさが』](https://gazosaga.com/){:target="_blank"}
 
 ## ACTRESS
 - [みんなのAV.com](https://www.minnano-av.com/){:target="_blank"}
