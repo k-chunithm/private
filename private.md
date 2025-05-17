@@ -4,6 +4,12 @@
 - [view](https://raindrop.io/miminame-11235813){:target="_blank"}
 - [edit](https://app.raindrop.io/my/0){:target="_blank"}
 
+## PLAN
+- [Pixiv](https://www.pixiv.net/)
+- [Pixiv Fanbox](https://www.fanbox.cc/)
+- [ci-en](https://ci-en.dlsite.com/mypage)
+- [fantia](https://fantia.jp/)
+
 ## COMIC
 - [momon-ga](https://momon-ga.com/){:target="_blank"}
 - [ひめぼん](https://himebon.blog/){:target="_blank"}
@@ -12,8 +18,13 @@
 - [akuma.moe](https://akuma.moe/){:target="_blank"}
 - [hentaipaw.com](https://hentaipaw.com/){:target="_blank"}
 
+## Cosplay
+- [コノダレ](https://konodare.wew.jp/)
+- [eporner.com](https://jp.eporner.com/search/cosplay-japanese/)
+- [sukebei.com - torrent](https://sukebei.nyaa.si/)
+
 ## MOVIE
-- [missav.ws](https://missav.ws/ja){:target="_blank"}
+- [missav.ws](https://missav.ai/ja){:target="_blank"}
 - [kisscos.net](https://kisscos.net/){:target="_blank"}
 - [乳皇帝](https://chichikoutei.com/){:target="_blank"}
 - [njav.tv](https://njav.tv/ja){:target="_blank"}
